@@ -18,5 +18,5 @@ This was a fun project because we had the freedom to create whatever we wanted. 
 
 
 # I was also responsible for a school Flyer. This was the outcome of it.
+![image](https://github.com/user-attachments/assets/8e3d5270-e4c8-4eb2-baa7-08f5d866c1cf)
 
-![image](https://github.com/user-attachments/assets/699b8f6a-4e72-4142-8097-e07540744b03)
